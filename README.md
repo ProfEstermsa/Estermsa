@@ -1,2 +1,0 @@
-# Estermsa
-Meus compartilhamentos
